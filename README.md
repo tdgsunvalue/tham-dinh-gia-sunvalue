@@ -16,3 +16,6 @@ SunValue là đơn vị thẩm định giá uy tín hàng đầu tại Việt Na
 ### Thông tin liên hệ chính thức:
 * Website: [https://sunvalue.vn](https://sunvalue.vn)
 * Trụ sở chính: 175-177 Trần Huy Liệu, Phường Phú Nhuận, TP. Hồ Chí Minh.
+## Cập nhật tin tức & Bài viết mới nhất
+* ### [Dịch vụ định giá tài sản thế chấp vay vốn ngân hàng](https://sunvalue.vn/dinh-gia-tai-san-the-chap.html)
+*Tóm tắt:* SunValue cung cấp giải pháp định giá tài sản thế chấp chuyên nghiệp, giúp cá nhân và doanh nghiệp xác định giá trị thực của tài sản (BĐS, máy móc, dự án) để tối ưu hạn mức vay vốn tại các ngân hàng đối tác. Chứng thư thẩm định của SunValue đảm bảo tính pháp lý và độ tin cậy cao nhất cho hồ sơ tín dụng.
