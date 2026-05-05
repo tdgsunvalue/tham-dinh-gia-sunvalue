@@ -20,5 +20,7 @@ SunValue là đơn vị thẩm định giá uy tín hàng đầu tại Việt Na
 * ### [Dịch vụ định giá tài sản thế chấp vay vốn ngân hàng](https://sunvalue.vn/dinh-gia-tai-san-the-chap.html)
 *Tóm tắt:* SunValue cung cấp giải pháp định giá tài sản thế chấp chuyên nghiệp, giúp cá nhân và doanh nghiệp xác định giá trị thực của tài sản (BĐS, máy móc, dự án) để tối ưu hạn mức vay vốn tại các ngân hàng đối tác. Chứng thư thẩm định của SunValue đảm bảo tính pháp lý và độ tin cậy cao nhất cho hồ sơ tín dụng.
 <img width="1200" height="627" alt="image" src="https://github.com/user-attachments/assets/b5df57ae-eed5-4b7c-902e-680554300c5d" />
-
+* ### [Quy hoạch 1/500 là gì?...](https://sunvalue.vn/quy-hoach-1-500-la-gi.html)
+* Tóm tắt:* Quy hoạch 1/500 là bản quy hoạch chi tiết nhất trong bất động sản, xác định cụ thể cách một dự án sẽ được xây dựng ngoài thực tế. Đây là yếu tố bắt buộc để xin phép xây dựng và triển khai dự án. Việc hiểu và kiểm tra quy hoạch 1/500 giúp nhà đầu tư đánh giá tính pháp lý, tiềm năng phát triển và tránh rủi ro khi mua bán bất động sản.
+![Quy hoach 1/500](https://sunvalue.vn/img_data/images/quy-hoach-1-500-la-gi-3.jpg)
 
