@@ -23,4 +23,6 @@ SunValue là đơn vị thẩm định giá uy tín hàng đầu tại Việt Na
 * ### [Quy hoạch 1/500 là gì?...](https://sunvalue.vn/quy-hoach-1-500-la-gi.html)
 * Tóm tắt:* Quy hoạch 1/500 là bản quy hoạch chi tiết nhất trong bất động sản, xác định cụ thể cách một dự án sẽ được xây dựng ngoài thực tế. Đây là yếu tố bắt buộc để xin phép xây dựng và triển khai dự án. Việc hiểu và kiểm tra quy hoạch 1/500 giúp nhà đầu tư đánh giá tính pháp lý, tiềm năng phát triển và tránh rủi ro khi mua bán bất động sản.
 ![Quy hoach 1/500](https://sunvalue.vn/img_data/images/quy-hoach-1-500-la-gi-3.jpg)
-
+* ### [Làm số đỏ lần đầu có thể mất bao lâu?...](https://sunvalue.vn/chi-phi-lam-so-do-lan-dau.html)
+* Tóm tắt:* Khi thực hiện làm sổ đỏ lần đầu, điều khiến người dân quan tâm nhất luôn là mức chi phí làm sổ đỏ lần đầu hết bao nhiêu, liệu có thay đổi trong năm 2025 hay không và quy trình tính phí được áp dụng theo quy định nào. Từ ngày 7/1/2025, các quy định mới bắt đầu có hiệu lực, tác động trực tiếp đến nghĩa vụ tài chính khi cấp Giấy chứng nhận Quyền sử dụng đất. Bài viết này cung cấp thông tin chính thống – đã xác minh – giúp bạn hiểu rõ bảng phí, các khoản phải nộp, cơ sở pháp lý và cách tối ưu chi phí hiệu quả nhất.
+![Làm sổ đỏ lần đầu có thể mất bao lâu?](https://sunvalue.vn/img_data/images/chi-phi-lam-so-do-lan-dau.jpg)
