@@ -29,3 +29,6 @@ SunValue là đơn vị thẩm định giá uy tín hàng đầu tại Việt Na
 * ### [Sàn giao dịch bất động sản...](https://sunvalue.vn/san-giao-dich-bat-dong-san.html)
 * Tóm tắt:* Sàn giao dịch bất động sản là nơi: 👉 Kết nối người mua, người bán, nhà đầu tư và môi giới bất động sản. Thông qua sàn giao dịch: Thông tin thị trường minh bạch hơn Hỗ trợ pháp lý tốt hơn Tăng tính an toàn khi giao dịch. 👉 Đây đang là mô hình ngày càng quan trọng trong thị trường bất động sản hiện nay.
 ![Sàn giao dịch bất động sản...](https://sunvalue.vn/img_data/images/san-giao-dich-bat-dong-san.jpg)
+* ### [Cách định giá năng lượng điện gió chuẩn để vay vốn nhanh..](https://sunvalue.vn/dinh-gia-nang-luong-dien-gio.html)
+* Tóm tắt:* Định giá năng lượng điện gió là quá trình xác định giá trị toàn diện của dự án điện gió dựa trên công suất, hiệu suất tua-bin, hợp đồng mua bán điện (PPA) và dòng tiền dài hạn (15 – 25 năm), nhằm phục vụ vay vốn ngân hàng, gọi vốn đầu tư và giao dịch M&A.
+![Cách định giá năng lượng điện gió chuẩn để vay vốn nhanh..](https://sunvalue.vn/img_data/images/dinh-gia-nang-luong-dien-gio.jpg)
