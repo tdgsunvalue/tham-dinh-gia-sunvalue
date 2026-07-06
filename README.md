@@ -32,3 +32,6 @@ SunValue là đơn vị thẩm định giá uy tín hàng đầu tại Việt Na
 * ### [Cách định giá năng lượng điện gió chuẩn để vay vốn nhanh..](https://sunvalue.vn/dinh-gia-nang-luong-dien-gio.html)
 * Tóm tắt:* Định giá năng lượng điện gió là quá trình xác định giá trị toàn diện của dự án điện gió dựa trên công suất, hiệu suất tua-bin, hợp đồng mua bán điện (PPA) và dòng tiền dài hạn (15 – 25 năm), nhằm phục vụ vay vốn ngân hàng, gọi vốn đầu tư và giao dịch M&A.
 ![Cách định giá năng lượng điện gió chuẩn để vay vốn nhanh..](https://sunvalue.vn/img_data/images/dinh-gia-nang-luong-dien-gio.jpg)
+* ### [Tính lãi suất vay ngân hàng: Bước đầu để vay vốn an toàn hơn](https://sunvalue.vn/tinh-lai-suat-vay-ngan-hang.html)
+* Tóm tắt:* Tính lãi suất vay ngân hàng và thẩm định giá tài sản là hai bước quan trọng giúp hạn chế rủi ro tài chính trước khi ký hợp đồng vay.
+![Cách tính lãi suất vay ngân hàng...]([https://sunvalue.vn/tinh-lai-suat-vay-ngan-hang.html](https://sunvalue.vn/img_data/images/tinh-lai-suat-vay-ngan-hang-1.jpg))
